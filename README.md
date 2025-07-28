@@ -1,5 +1,5 @@
 # 💫 About Me:
-ԅ(¯﹃¯ԅ) Information Technology Student<br>༼ つ ◕_◕ ༽つ Passion for Web and Mobile
+ԅ(¯﹃¯ԅ) Information Technology Graduate with Latin Honor as Magna Cum Laude<br>༼ つ ◕_◕ ༽つ Passion for Web and Mobile App Development
 
 
 ## 🌐 Socials:
